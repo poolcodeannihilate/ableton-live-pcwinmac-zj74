@@ -1,4 +1,4 @@
-# 
+# VIP Ableton Live plantillas para Mac OS | Instantáneo Ableton Live plantillas para PC Windows. Con gráficos en movimiento y procesamiento por lotes — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
